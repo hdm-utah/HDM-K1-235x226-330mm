@@ -17,4 +17,5 @@ Below are some photos of the conversion installed on a K1
 ![GPR28672](https://github.com/user-attachments/assets/bfbb6e19-9ad9-4d0d-a04b-7e063b4a759d)
 ![GPR28676](https://github.com/user-attachments/assets/516d1d18-dc96-4826-83f7-950494eda87f)
 
-YOU ARE NOT ALLOWED TO SELL THIS WORK! IF YOU SEE OR CONTACT SOMEONE OTHER THAN hdm.utah@gmail.com THAT IS SELLING KITS DO NOT BUY FROM THEM AND PLEASE CONTACT hdm.utah@gmail.com
+Purchase a kit at hdm3d.com
+
